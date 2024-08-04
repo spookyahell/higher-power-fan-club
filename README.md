@@ -11,7 +11,7 @@ But technically we don't care about what they are. (Technically we do, we just d
 <br>Just - They need to make sense, speaking in a sense of keeping society clean.
 <br>One example: You can have as many gods as you like, that one was complete and utter bullshit.
 
-# Back when the 10 commandments were dropped/hot... society was a bit simpler back then
+# Back when the 10 commandments were dropped/hot...<br>society was a bit simpler back then
 We didn't have GitHub back then. We do now.
 <br>(<em>Can you imagine the world with modern technology being available in mideval times?</em>)
 <br>Thank ~~GOD~~. -- Oh, wait, yeah that's the next thing --
@@ -48,8 +48,9 @@ I personally feel like it might be the fewest of evils out there;
 <br><strong>Not intended as an endorsement of any kind of church here.</strong>
 
 # Fuck the official rules/laws wherever it makes any sense whatsoever
-# Take responsibility  for your actions* ...<br>ONLY if it makes sense in the moment. 
-\*(What does it mean? Nobody really knows.)
+# Take responsibility  for your actions* ...<br>ONLY if it makes sense in the moment.
+Or if you are asked/forced to by law enforcement agencies of where you reside or where you visit.
+<br>\* What does it mean? Nobody really knows. (Think back and realize you fucked up or got caught fúcking it up - end of story.)
 ## Be risk-aware if you fuck the rules. (Don't be stupid.)
 ## Yeah, they're there for a reason...<br>but the weak are being exploited and the mighty are getting richer by the second.
 
