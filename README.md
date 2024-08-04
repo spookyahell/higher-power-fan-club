@@ -10,6 +10,7 @@ But technically we don't care about what they are. (Technically we do, we just d
 
 # Back when the 10 commandments were dropped/hot... society was a bit simpler back then
 We didn't have GitHub back then. We do now.
+<br>(<em>Can you imagine the world with modern technology being available in mideval times?</em>)
 <br>Thank ~~GOD~~. -- Oh, wait, yeah that's the next thing --
 
 # We do not use the term GOD. That term is tabu.
@@ -18,10 +19,16 @@ Also, unfortunately many people have disobeyed the important rule of not making 
 <br>God is often depicted male, the truth is this is a sad fact and people showing images of "god" --
 <br>and claiming to BELIEVE in Christianity can suck my... well, you get it.
 
-## The soul out there, if it even has a soul, like who the fuck knows..
+## The soul out there, if it even has a soul... (Like... [Dr.] Who the fuck knows?)
 # We call it THE HIGHER POWER
 There's a nice [pop song by Coldplay](https://youtu.be/3lfnR7OhZY8)... that just fits ALL TO WELL here.
 <br><em>Cue screaming Swifties.</em>
 <br>Oh yeah... "We don't idolize pop culture figures." would be another great mantra to live by.
 <br>But no hate, if you need to idolize certain personalities to <strong>live your life to the fullest.</strong>
 <br>Just try and keep the idolizing to a sane level, o.k.? Is that too much to ask? I should think not.
+
+# You're allowed to be mad at the HIGHER POWER.
+## In public or anywhere you like or feel comfortable with.
+Shame is a negative feeling you can surpress if you try hard enough.
+<br>In a store, if the prices feel like they jumped, go crazy.
+<br>Tell the world your feelings. Where it makes sense. Or where it doesn't, if it feels right.
