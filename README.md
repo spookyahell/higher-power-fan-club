@@ -57,7 +57,8 @@ Or if you are asked/forced to by law enforcement agencies of where you reside or
 # The Higher Power hates the imbalance in the (in)justice.
 ## The Higher Power is well-aware that you aren't expected to fix the problem by yourself.
 
-Just don't be sheeple. OK? - Don't vote for Trump, he's very evil when it comes to faking a love for religion.
+Just don't be sheeple. OK?
+<br>Don't vote for Trump, he's very evil when it comes to faking a love for religion.
 <br>(Doing a very bad job of faking it believably)
 
 # Religion so very much HAS A PLACE in politics
