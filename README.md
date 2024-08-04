@@ -61,7 +61,7 @@ Just don't be sheeple. OK?
 <br>Don't vote for Trump, he's very evil when it comes to faking a love for religion.
 <br>(Doing a very bad job of faking it believably)
 
-# Religion so very much HAS A PLACE in politics
+# OPINION: Religion so very much HAS A PLACE in politics
 ## Don't vote for Kamala if you don't think she has what it takes.
 ## Where was she after the televised debate?!
 ### Should've been working on convincing him to drop out the day after.
@@ -74,7 +74,9 @@ A fucking act of desperacy.
 ## (which is generally not a good thing if you're running for head of the union)
 ## and someone who clearly lacks leadership skills. - OPINION.
 
-# DON'T VOTE IN THIS DEVISIVE POLITICAL SHIT SHOW.
+# OPINION: DON'T VOTE!!
+## IN THIS DEVISIVE POLITICAL SHIT SHOW.
+
 # However, if for whatever fucked up reason you do still wanna vote...
 ## it will be entirely up to you which one of the two you pick.
 ## I am not gonna tell you which "demon" you should elect...
