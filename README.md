@@ -2,6 +2,7 @@
 ## The new religion that starts fresh, from scratch.
 The Religion that starts now. No scandals. No bullshit. No witches being burned to the ground.
 <br>Nobody (ab)using it to claim their terroristic acts on it's behalf. (Hopefully? Due to lack of reach for now, lol)
+<br><strong>Very loosely</strong> based on believes of the protestant Christian church.
 
 # Technically we live by the 10 commandments.
 ## Maybe it's 20, maybe it's 45...
@@ -47,7 +48,7 @@ I personally feel like it might be the fewest of evils out there;
 <br><strong>Not intended as an endorsement of any kind of church here.</strong>
 
 # Fuck the official rules/laws wherever it makes any sense whatsoever
-# But take responsibility for your actions, always.
+# Take responsibility  for your actions, always. (What does it mean? Nobody really knows.)
 ## Be risk-aware if you fuck the rules. (Don't be stupid.)
 ## Yeah, they're there for a reason but the weak are being exploited and the mighty are getting richer by the second.
 
