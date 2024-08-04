@@ -4,9 +4,11 @@ The Religion that starts now. No scandals. No bullshit. No witches being burned 
 <br>Nobody (ab)using it to claim their terroristic acts on it's behalf. (Hopefully? Due to lack of reach for now, lol)
 
 # Technically we live by the 10 commandments.
+## Maybe it's 20, maybe it's 45...
+## (I honestly don't know if a majority would easily remember all 45 rules at all times...)
 But technically we don't care about what they are. (Technically we do, we just don't care a whole lot, cause we lazy af.)
-<br>You can have as many gods as you like, that one was complete and utter bullshit.
 <br>Just - They need to make sense, speaking in a sense of keeping society clean.
+<br>One example: You can have as many gods as you like, that one was complete and utter bullshit.
 
 # Back when the 10 commandments were dropped/hot... society was a bit simpler back then
 We didn't have GitHub back then. We do now.
@@ -16,11 +18,12 @@ We didn't have GitHub back then. We do now.
 # We do not use the term GOD. That term is tabu.
 ## been abused too often already.
 Also, unfortunately many people have disobeyed the important rule of not making an image of GOD.
-<br>God is often depicted male, the truth is this is a sad fact and people showing images of "god" --
+<br>The Christian God - when this sin is committed - is often depicted male, the truth is this is a sad fact and people showing images of "god" --
 <br>and claiming to BELIEVE in Christianity can suck my... well, you get it.
 
 ## The soul out there, if it even has a soul... (Like... [Dr.] Who the fuck knows?)
 # We call it THE HIGHER POWER
+## That's why this is the HPFC: The Higher Power Fan-Club
 There's a nice [pop song by Coldplay](https://youtu.be/3lfnR7OhZY8)... that just fits ALL TO WELL here.
 <br><em>Cue screaming Swifties.</em>
 <br>Oh yeah... "We don't idolize pop culture figures." would be another great mantra to live by.
