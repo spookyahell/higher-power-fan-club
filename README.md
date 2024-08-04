@@ -1,3 +1,5 @@
+## Du bist eine Deutsche Kartoffel? - [Hier entlang!](LIESMICH.md)
+
 # higher-power-fan-club (HPFC)
 ## The new religion that starts fresh, from scratch.
 The Religion that starts now. No scandals. No bullshit. No witches being burned to the ground.
