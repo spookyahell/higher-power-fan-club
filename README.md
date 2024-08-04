@@ -16,7 +16,7 @@ We didn't have GitHub back then. We do now.
 ## been abused too often already.
 Also, unfortunately many people have disobeyed the important rule of not making an image of GOD.
 <br>God is often depicted male, the truth is this is a sad fact and people showing images of "god" --
-<nr>and claiming to BELIEVE in Christianity can suck my... well, you get it.
+<br>and claiming to BELIEVE in Christianity can suck my... well, you get it.
 
 ## The soul out there, if it even has a soul, like who the fuck knows..
 # We call it THE HIGHER POWER
