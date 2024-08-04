@@ -48,9 +48,10 @@ I personally feel like it might be the fewest of evils out there;
 <br><strong>Not intended as an endorsement of any kind of church here.</strong>
 
 # Fuck the official rules/laws wherever it makes any sense whatsoever
-# Take responsibility  for your actions, always. (What does it mean? Nobody really knows.)
+# Take responsibility  for your actions* ...<br>ONLY if it makes sense in the moment. 
+\*(What does it mean? Nobody really knows.)
 ## Be risk-aware if you fuck the rules. (Don't be stupid.)
-## Yeah, they're there for a reason but the weak are being exploited and the mighty are getting richer by the second.
+## Yeah, they're there for a reason...<br>but the weak are being exploited and the mighty are getting richer by the second.
 
 # The Higher Power hates the imbalance in the (in)justice.
 ## The Higher Power is well-aware that you aren't expected to fix the problem by yourself.
