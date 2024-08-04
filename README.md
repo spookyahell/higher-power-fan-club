@@ -18,3 +18,8 @@ Also, unfortunately many people have disobeyed the important rule of not making 
 
 ## The soul out there, if it even has a soul, like who the fuck knows..
 # We call it THE HIGHER POWER
+There's a nice [pop song by Coldplay](https://youtu.be/3lfnR7OhZY8)... that just fits ALL TO WELL here.
+<br><em>Cue screaming Swifties.</em>
+<br>Oh yeah... "We don't idolize pop culture figures." would be another great mantra to live by.
+<br>But no hate, if you need to idolize certain personalities to <strong>live your life to the fullest.</strong>
+<br>Just try and keep the idolizing to a sane level, o.k.? Is that too much to ask? I should think not.
