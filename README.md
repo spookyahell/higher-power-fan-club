@@ -42,6 +42,37 @@ Shame is a negative feeling you can surpress if you try hard enough.
 If a protestant Christian church is nearby, try that one (?*)
 <br>(or don't if you feel that's a better choice for you, personally)
 
-\* feels like it might be the fewest of evils out there;
+I personally feel like it might be the fewest of evils out there;
 <br>Although... looking too far into the past of any church is probably a bad idea, generally;
 <br><strong>Not intended as an endorsement of any kind of church here.</strong>
+
+# Fuck the official rules/laws wherever it makes any sense whatsoever
+# But take responsibility for your actions, always.
+## Be risk-aware if you fuck the rules. (Don't be stupid.)
+## Yeah, they're there for a reason but the weak are being exploited and the mighty are getting richer by the second.
+
+# The Higher Power hates the imbalance in the (in)justice.
+## The Higher Power is well-aware that you aren't expected to fix the problem by yourself.
+
+Just don't be sheeple. OK? - Don't vote for Trump, he's very evil when it comes to faking a love for religion.
+<br>(Doing a very bad job of faking it believably)
+
+# Religion so very much HAS A PLACE in politics
+## Don't vote for Kamala if you don't think she has what it takes.
+## Where was she after the televised debate?!
+### Should've been working on convincing him to drop out the day after.
+## But she was in denial, like the rest of the relevant Democrats.
+### (Although, loads of critisism started pouring in after additional gaffes on Biden's behalf.)
+## The VIP funds were only pulled as a last measure.
+A fucking act of desperacy.
+
+## You're voting between a racist orange man who doesn't care too much about facts
+## (which is generally not a good thing if you're running for head of the union)
+## and someone who clearly lacks leadership skills. - OPINION.
+
+# DON'T VOTE IN THIS DEVISIVE POLITICAL SHIT SHOW.
+# However, if for whatever fucked up reason you do still wanna vote...
+## it will be entirely up to you which one of the two you pick.
+## I am not gonna tell you which "demon" you should elect...
+I guess... whatever gets your political penis erect.
+<br>(or gives your political vagina a sensational feeling)
