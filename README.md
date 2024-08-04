@@ -35,3 +35,13 @@ There's a nice [pop song by Coldplay](https://youtu.be/3lfnR7OhZY8)... that just
 Shame is a negative feeling you can surpress if you try hard enough.
 <br>In a store, if the prices feel like they jumped, go crazy.
 <br>Tell the world your feelings. Where it makes sense. Or where it doesn't, if it feels right.
+
+# Don't put too much value into the buildings
+## (where the prayers are held/society meets... and other things happen too? Or so I heard.)
+## Put more value in the conversations you have with the Higher Power.</strong>
+If a protestant Christian church is nearby, try that one (?*)
+<br>(or don't if you feel that's a better choice for you, personally)
+
+\* feels like it might be the fewest of evils out there;
+<br>Although... looking too far into the past of any church is probably a bad idea, generally;
+<br><strong>Not intended as an endorsement of any kind of church here.</strong>
