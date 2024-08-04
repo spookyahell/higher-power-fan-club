@@ -68,7 +68,7 @@ Just don't be sheeple. OK?
 ## But she was in denial, like the rest of the relevant Democrats.
 ### (Although, loads of critisism started pouring in after additional gaffes on Biden's behalf.)
 ## The VIP funds were only pulled as a last measure.
-A fucking act of desperacy.
+A fucking act of ~~desperacy~~ desperation (if we wanna stay modern with the language, and... fuck, we do!).
 
 ## You're voting between a racist orange man who doesn't care too much about facts
 ## (which is generally not a good thing if you're running for head of the union)
