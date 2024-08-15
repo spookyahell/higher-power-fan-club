@@ -1,6 +1,10 @@
 ## Du bist eine Deutsche Kartoffel? - [Hier entlang!](LIESMICH.md)
 
 # higher-power-fan-club (HPFC)
+
+## We got a FGC (Fan Group Chat), hosted on Telegram
+[@aHigherPower](https://t.me/aHigherPower)
+
 ## The new religion that starts fresh, from scratch.
 The Religion that starts now. No scandals. No bullshit. No witches being burned to the ground.
 <br>Nobody (ab)using it to claim their terroristic acts on it's behalf. (Hopefully? Due to lack of reach for now, lol)
