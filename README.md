@@ -81,7 +81,10 @@ Just don't be sheeple. OK?
 # [Edit August 2025]
 ## Without HPFC having the necessary reach... I believe the message was received by the voters. Not enough Democrats showed up to beat Trump. This was to be expected and the result isn't great but at least there's maybe a couple of non-voters who know they did the best they could. 
 
-## I actually voted for Donald J. Trump and I did so in the state of New Jersey. Could have just skipped voting entirely. May have been the better option. However: Same thing would have happened. Only difference: Trump got one more in the popular vote because of me. Yay?
+## I actually voted for Donald J. Trump and I did so in the state of New Jersey. Could have just skipped voting entirely. May have been the better option. However: Same thing would have happened. Only difference: Trump got one more in the popular vote because of me. Yay? Call it a protest vote. Whatever. I don't care. It really shouldn't matter. New Jersey elctoral college voters voted for Kamala. 
+# It's a fucked up winner takes all voting system where red votes are thrown out in a state that has a blue majority. On the other hand Texas has blue votes that are thrown out. And yet Trump still won the popular vote this time around. 
+# Again, I believe not enough Democrats showed up for the vote. And this is despite it being possible to vote by mail-in voting in most states and absentee voting for over-seas citizens.
+# Perhaps if the vote had been organized so that you can vote on Telegram, the turnout would have been higher? But it's not safe on Telegram. Not really.
 # [End of Edit August 2025]
 
 ## Don't vote for Kamala if you don't think she has what it takes.
