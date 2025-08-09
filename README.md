@@ -17,6 +17,8 @@ But technically we don't care about what they are. (Technically we do, we just d
 <br>Just - They need to make sense, speaking in a sense of keeping society clean.
 <br>One example: You can have as many gods as you like, that one was complete and utter bullshit.
 
+Well... honestly, Judaism is good too since we care mostly about the old testament, which as you may or may not know is similar to the contents of the Torah.
+
 # Back when the 10 commandments were dropped/hot...<br>society was a bit simpler back then
 We didn't have GitHub back then. We do now.
 <br>(<em>Can you imagine the world with modern technology being available in mideval times?</em>)
