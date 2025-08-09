@@ -77,9 +77,16 @@ Just don't be sheeple. OK?
 <br>(Doing a very bad job of faking it believably)
 
 # OPINION: Religion so very much HAS A PLACE in politics
+
+# [Edit August 2025]
+## Without HPFC having the necessary reach... I believe the message was received by the voters. Not enough Democrats showed up to beat Trump. This was to be expected and the result isn't great but at least there's maybe a couple of non-voters who know they did the best they could. 
+
+## I actually voted for Donald J. Trump and I did so in the state of New Jersey. Could have just skipped voting entirely. May have been the better option. However: Same thing would have happened. Only difference: Trump got one more in the popular vote because of me. Yay?
+# [End of Edit August 2025]
+
 ## Don't vote for Kamala if you don't think she has what it takes.
 ## Where was she after the televised debate?!
-### Should've been working on convincing him to drop out the day after.
+### Should've been working on convincing him to drop out the daty after.
 ## But she was in denial, like the rest of the relevant Democrats.
 ### (Although, loads of critisism started pouring in after additional gaffes on Biden's behalf.)
 ## The VIP funds were only pulled as a last measure.
