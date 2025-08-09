@@ -15,9 +15,15 @@ The Religion that starts now. No scandals. No bullshit. No witches being burned 
 ## (I honestly don't know if a majority would easily remember all 45 rules at all times...)
 But technically we don't care about what they are. (Technically we do, we just don't care a whole lot, cause we lazy af.)
 <br>Just - They need to make sense, speaking in a sense of keeping society clean.
-<br>One example: You can have as many gods as you like, that one was complete and utter bullshit.
+<br>One example that disagrees with the 10 commandments: You can have as many gods as you like, that one was complete and utter bullshit.
 
-Well... honestly, Judaism is good too since we care mostly about the old testament, which as you may or may not know is similar to the contents of the Torah.
+That means we welcome all friendly Buddhists as well as all other religios branches with more than one god.
+
+I'd say, simply put, we never welcome anyone from any religion who is considered generally unfriendly. We distance ourselves from anyone trying to abuse our Higher Power for true evil purposes. 
+
+Copyright infringement is an example that we usually do NOT consider a true evil by the way. It's cause we believe in a perfect world all intellectual property should technically belong to everyone in the entire world equally.
+
+Well... honestly, can't forget to mention the other major world religion, can we? No, so here's the thing: Judaism is good too, since we care mostly about the old testament, which as you may or may not know is similar to the contents of the Torah.
 
 # Back when the 10 commandments were dropped/hot...<br>society was a bit simpler back then
 We didn't have GitHub back then. We do now.
