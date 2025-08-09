@@ -39,6 +39,7 @@ Also, unfortunately many people have disobeyed the important rule of not making 
 ## The soul out there, if it even has a soul... (Like... [Dr.] Who the fuck knows?)
 # We call it THE HIGHER POWER
 ## That's why this is the HPFC: The Higher Power Fan-Club
+## Sometimes, we refer to the Higher Power as "a higher power". This is perfectly fine since a ton of specifics about THE Higher Power are unknown.
 There's a nice [pop song by Coldplay](https://youtu.be/3lfnR7OhZY8)... that just fits ALL TO WELL here.
 <br><em>Cue screaming Swifties.</em>
 <br>Oh yeah... "We don't idolize pop culture figures." would be another great mantra to live by.
